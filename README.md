@@ -1,5 +1,5 @@
 # Hello everyone! Welcome to my development home! 💻
-- 🗂️: My name is **Anna Luiza**! I currently work in the area of ​​back-end development with **Restfull APIs** and I am looking to become even more professional. I have already developed in **Python** and **Java**, but I intend to focus more on my knowledge in **Java**.
+- 🗂️: My name is **Anna Luiza**! I currently work in the area of ​​back-end development with **Restfull APIs** and I am looking to become even more professional. I have already developed in **Python** and **Java**, but I intend to focus more on my knowledge in **Java**. My biggest goal is to continue growing professionally as a developer.
 
 ---
 
