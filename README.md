@@ -22,15 +22,5 @@
 
 ---
 
-## GitHub stats 🏷️
-<div align="center">
-  <a href="https://github.com/yourusername">
-  <img height="120em" src="https://github-readme-stats.vercel.app/api?username=AnnaLuizaDev&show_icons=true&theme=light&include_all_commits=true&count_private=true"/>
-    <img height="120em" src="https://github-readme-stats.vercel.app/api/top-langs/?username=AnnaLuizaDev&layout=compact&langs_count=7&theme=light"/>
-  </a>
-</div>
-
----
-
 ## Keep studying!
 - 🗂️: Your future will be built by you!!! 🌸
