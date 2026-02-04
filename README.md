@@ -35,6 +35,6 @@
 ## Keep studying!
 - 🗂️: Your future will be built by you!!! 🌸
 
-![]([https://yakuyoke-kaiun.jp/544107/Valentine-039-s-Day-GIFs-On-GIPHY-Be-Animated](https://usagif.com/wp-content/uploads/gify/hello-kitty-usagif-animation-31.gif])
+![]([https://usagif.com/wp-content/uploads/gify/hello-kitty-usagif-animation-31.gif])
 
 - Keep cute little stitch!
