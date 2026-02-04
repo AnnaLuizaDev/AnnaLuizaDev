@@ -34,7 +34,3 @@
 
 ## Keep studying!
 - 🗂️: Your future will be built by you!!! 🌸
-
-![]([https://usagif.com/wp-content/uploads/gify/hello-kitty-usagif-animation-31.gif])
-
-- Keep cute little stitch!
