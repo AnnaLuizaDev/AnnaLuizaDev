@@ -35,6 +35,6 @@
 ## Keep studying!
 - 🗂️: Your future will be built by you!!! 🌸
 
-![]([https://64.media.tumblr.com/78a19d1f00b81df2beef2b6d63f18168/0c0b816a07090260-af/s540x810/a7e12ebcc0840e06bcd8a46d75c51e7e62032db8.gif](https://yakuyoke-kaiun.jp/544107/Valentine-039-s-Day-GIFs-On-GIPHY-Be-Animated))
+![]([https://yakuyoke-kaiun.jp/544107/Valentine-039-s-Day-GIFs-On-GIPHY-Be-Animated])
 
 - Keep cute little stitch!
